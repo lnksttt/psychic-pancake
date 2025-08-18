@@ -6,7 +6,6 @@ comments: false
 tags: Botschaft
 excerpt_separator: <!--more-->
 sticky: true
-hidden: false
 ---
 
 # Warum tötet links?
