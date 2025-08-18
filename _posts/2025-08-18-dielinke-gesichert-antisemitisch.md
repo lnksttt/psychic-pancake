@@ -9,7 +9,7 @@ sticky: false
 ---
 
 
-Auf dem Account der Die Linken (ehemals SED) auf der Plattform X tauchte ein Post auf, der es bedauert, dass nicht mehr als 50 jüdische Menschen aus einem fliegenden Flugzeug gefallen sind.
+Auf dem Account der Die Linken (ehemals SED) auf der Plattform X tauchte ein Post auf, der es bedauert, dass mehr als 50 jüdische Menschen nicht aus einem fliegenden Flugzeug gefallen sind.
 <!--more-->
 
 Zwar hat es die Partei unternommen, den Post zu löschen, nachdem man sich der unverholene Judenfeindlichkeit bewußt wurde und sich in der Folge davon distanziert.
