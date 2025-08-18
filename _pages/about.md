@@ -11,3 +11,7 @@ Ideologien und Ziele des politisch linken Spektrums bedrohen unsere Demokratie, 
 Insbesondere Akteure und Anhänger des linken Spektrums stellen auch eine Gefahrt für Leib und Leben von Minderheiten, Andersdenkenden, Schwachen und Anhänger bestimmter Religionen dar.
 
 Dies zu dokumentieren und sichtbar zu machen ist die Aufgabe dieser Seite und Motivation der Autoren.
+
+Freundliche und respektvolle Kommentare sind willkommen.
+
+Wir akzeptieren keinen Hass, Ausgrenzung oder Diskriminierung.
