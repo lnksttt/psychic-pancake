@@ -16,4 +16,4 @@ Zwar hat es die Partei unternommen, den Post zu löschen, nachdem man sich der u
 
 Dennoch zeigt dieser Vorfall wieder einmal eindeutig, welch Geistes Kind die Parteigänger und ihr Umfeld sind.
 
-![Screenshot Post auf X.com](/psychic-pancake/illustration/2025-08-18-dielinke-gesichert-antisemitisch.jpg "Screenshot Post auf X.com")
+![Screenshot Post auf X.com](/psychic-pancake/assets/illustration/2025-08-18-dielinke-gesichert-antisemitisch.jpg "Screenshot Post auf X.com")
